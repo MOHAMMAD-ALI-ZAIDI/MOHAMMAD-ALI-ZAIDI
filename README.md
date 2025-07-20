@@ -26,8 +26,8 @@ I'm a **Data Science enthusiast** with a postgraduate background in **Statistics
   - Open-source or internship opportunities
 
 - 📫 **Reach Me At:**  
-  - **Email:** zakizaidi1905@gmail.com  
-    
+  - **Email:** alizaidi.phi2003@gmail.com  
+
 
 - ⚡ **Fun Fact:** I love learning new skills
 
